@@ -1,1 +1,1 @@
-Hey guys! This is the GitHub for our GP game, ______. Add stuff ig idrk
+Hey guys! This is the GitHub for our GP game, BETA. Add stuff ig idrk
